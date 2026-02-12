@@ -1,5 +1,8 @@
-# Barbecue Time
+# Demons
 
-Then Elijah commanded them, “Seize the prophets of Baal. Don’t let anyone get away!” They seized them, and Elijah had them brought down to the Kishon Valley and slaughtered there. 
+I wonder what you’re hiding behind those sunglasses you never take off — the kind of secret that would make the light itself recoil.
 
-1 Kings 18:40
+Like Jesus once said: "The eye is the lamp of the body"
+
+https://youtu.be/MY7Azb1sPu0
+
