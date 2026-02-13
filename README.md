@@ -10,3 +10,4 @@ https://youtu.be/BQcxvYigQHY
 
 3. An idea can be a powerful tool for stirring public opinion to create a pretext for war. For example, Chinese academics and state-backed narratives increasingly frame parts of the Paper Tiger Far East as historically Chinese, invoking Qing-era “unequal treaties” to justify territorial claims.
 
+4. [AI has the potential for manipulating users in ways we don’t have the tools to understand, let alone prevent.](https://edition.cnn.com/2026/02/11/business/openai-anthropic-departures-nightcap)
