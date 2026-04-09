@@ -1,7 +1,9 @@
-# DataSlop
+# Black and Tans
 
-https://techcrunch.com/2026/04/08/wireguard-vpn-developer-cant-ship-software-updates-after-microsoft-locks-account/
+https://www.independent.ie/irish-news/some-petrol-stations-run-out-of-fuel-as-army-begins-clearing-blockades-of-depots-taoiseach-says-gun-cant-be-put-to-head-of-government/a1708811230.html
 
-https://techlore.tech/microsofts-silent-lockout-why-wireguard-veracrypt-windscribe-can-no-longer-update-windows-users/
 
-https://www.securityweek.com/the-next-cybersecurity-crisis-isnt-breaches-its-data-you-cant-trust/
+“A gun can’t be put to the Government’s head,” they say — yet this Government has no problem putting one to the heads of its own people.
+In America, you have ICE; in Ireland, we have The Black and Tans.
+
+
