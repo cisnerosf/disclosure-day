@@ -1,3 +1,3 @@
-# Moraes libera processo que pode desmontar delação em meio à crise do Master
+# Coming up next
 
-https://noticias.uol.com.br/colunas/leticia-casado/2026/04/08/moraes-delacao-stf.htm
+Daniel Vorcaro's death was ruled a suicide ...
