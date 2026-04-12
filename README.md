@@ -1,6 +1,6 @@
-# Microslop
+**A time will come when instead of shepherds feeding the sheep, the church will have clowns entertaining the goats.**
 
-There are two things the LORD hates, three that are detestable to Him:
-- Slop Software
-- Pedophiles
-- A Company Complicit In Genocide
+Charles Spurgeon
+
+![Revelation 18:4](small_lake.png)
+
