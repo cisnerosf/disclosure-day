@@ -1,6 +1,5 @@
-**A time will come when instead of shepherds feeding the sheep, the church will have clowns entertaining the goats.**
+# Let's See Who This Really Is
 
-Charles Spurgeon
+> And I would have gotten away with it too, if it weren't for you meddling kids!
 
-![Revelation 18:4](small_lake.png)
-
+![meddling kids](./scooby-doo-unmasking.png)
