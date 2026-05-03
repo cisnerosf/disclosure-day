@@ -1,11 +1,10 @@
+# Our Country is Run By Idiots
 
-A short reminder for some world leaders:
 
-```
-When I refused to confess my sin,
-    my body wasted away,
-    and I groaned all day long.
-Day and night your hand of discipline was heavy on me.
-    My strength evaporated like water in the summer heat.
-```
-**Psalm 32:3-4 NLT**
+4 years and €2.2 billion later and still nothing:
+
+https://www.irishmirror.ie/news/irish-news/health-news/a-disaster-new-22-billion-36920434
+
+Maybe all that money should've gone to our doctors and nurses — not squandered on another vanity project.
+
+https://esmed.org/burnout-in-irish-mental-health-professionals-key-insights/
