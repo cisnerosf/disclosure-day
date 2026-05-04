@@ -1,10 +1,8 @@
-# Our Country is Run By Idiots
+# Apkallu
 
+-  12 Tribes of Israel
+-  12 Disciples
 
-4 years and €2.2 billion later and still nothing:
+https://en.wikipedia.org/wiki/Majestic_12
 
-https://www.irishmirror.ie/news/irish-news/health-news/a-disaster-new-22-billion-36920434
-
-Maybe all that money should've gone to our doctors and nurses — not squandered on another vanity project.
-
-https://esmed.org/burnout-in-irish-mental-health-professionals-key-insights/
+https://www.independent.co.uk/news/world/americas/scientists-missing-dead-fbi-nuclear-space-ufo-b2965352.html
