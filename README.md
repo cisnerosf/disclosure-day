@@ -1,8 +1,6 @@
-# Apkallu
+# I guess ZPE is not very profitable, is it?
 
--  12 Tribes of Israel
--  12 Disciples
+https://www.irishtimes.com/politics/2026/05/04/ireland-should-examine-seriously-nuclear-power-option-says-taoiseach/
 
-https://en.wikipedia.org/wiki/Majestic_12
+https://whyy.org/segments/as-the-trump-administration-and-major-tech-companies-promote-nuclear-energy-is-the-industry-making-a-comeback/
 
-https://www.independent.co.uk/news/world/americas/scientists-missing-dead-fbi-nuclear-space-ufo-b2965352.html
